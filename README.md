@@ -1,0 +1,2 @@
+# Mazu
+Só fanatico
